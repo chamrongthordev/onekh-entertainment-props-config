@@ -1,0 +1,1 @@
+# onekh-entertainment-props-config
